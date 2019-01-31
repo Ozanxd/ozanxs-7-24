@@ -1,2 +1,1 @@
-# ozanxs-7-24
-ozanxs-7/24
+# ozan-xd-7-24
